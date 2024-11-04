@@ -1,4 +1,4 @@
-vale a pena Investir????
+Vale a pena Investir????
 
 Inteligência Artificial (IA) é a capacidade de máquinas e sistemas de realizar tarefas que normalmente exigem inteligência humana. Isso inclui atividades como aprender, raciocinar, resolver problemas, compreender linguagem natural e reconhecer padrões. A IA pode ser dividida em duas categorias principais:
 
